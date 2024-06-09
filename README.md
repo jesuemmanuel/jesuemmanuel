@@ -17,7 +17,7 @@
 
 🎮 TRYHARD EN CUALQUIER JUEGO
 
-
+CONTACTO:jesus.emmanuel.reyes.tlaltecatl@cetis17.edu.mx
 
 🎧 MI SPOTIFY
 <p align="left">
